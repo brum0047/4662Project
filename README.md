@@ -4,8 +4,11 @@ My name is Nathan Brummer and I am seeking a graduate certificate in Scientific 
 Education
 
 1997-2001 Arrowhead High School, Hartland, WI. High School Diploma
+
 2001-2005 University of Minnesota, Minneapolis, MN. B.A., History, Political Science
+
 2011-2013 Inver Hills Community College, Inver Grove Heights, MN. Paralegal Certificate
+
 2018-Present University of Minnesota, Minneapolis, MN. Scientific and Technical Communication Certificate
 
 Employment
