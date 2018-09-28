@@ -13,7 +13,7 @@ Education
 
 Employment
 
-University of Minnesota, Public Safety Emergency Communications Center, Emergency Communications Operator
+2003-Present University of Minnesota, Public Safety Emergency Communications Center, Emergency Communications Operator
 
 Contact Info
 
